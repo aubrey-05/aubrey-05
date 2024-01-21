@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer programing 
 - 🌱 I’m currently learning  python...
 - 💞️ I’m looking to collaborate on a writing code 
-- 📫 How to reach me ..aubreyashton24@icloud.com.
+- 📫 How to reach me aubreyashton24@icloud.com
 - 😄 Pronouns: .black or african american ..
 - ⚡ Fun fact: life is a ball git it
 
